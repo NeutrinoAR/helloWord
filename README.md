@@ -1,1 +1,2 @@
 # helloWord
+I had planned to end my exploratory cycling trip in Tokyo, and once there I would likely be working with limited space for a full-sized bike box or bike. I’d been eyeballing the Velo Orange Neutrino, thinking once it was minimally disassembled, I’d be able to pack my clothes in the same compact bike bag to easily store in a locker at the Tokyo airport for my return and work assignment. Setting it up fixed gear (like my normal bikepacking bike) only made sense. The ease of travelling with a fixed gear can’t be beat!
